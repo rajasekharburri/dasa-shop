@@ -5,8 +5,6 @@
 *Oil added
 
 ## karam dosa added
-*Dosa batter
-
 #karam added
 
 #oil added
